@@ -43,4 +43,4 @@ here r sum ppl who used the haxx and it works 100% for them.
 "needs wall haxx, build it fgt" - donald trump
 
 #attention, if u don't star dis repo in 5 secodns ur mom will die and u will git 5 yers of bad luck, if ur wondering y ur still a lonely fgt its bcoz 5 years ago u didn't share that comment nd u got 5 yrs of bad luck.
-oh and ur prolly fat and gay 
+oh and ur prolly fat and gay, but if u lyke my repo den u get da 6 pac and u wont b fat nd gay anymore
